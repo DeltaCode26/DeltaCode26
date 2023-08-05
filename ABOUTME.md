@@ -1,0 +1,5 @@
+- 👋 Hi, I’m **``@DeltaCode26``**
+- 👀 I’m interested in ~~A GIRLFRIEND~~   **A FRIEND**
+- 🌱 I’m currently learning **C++**
+- 💞️ I’m looking to collaborate on **NOTHING** (right now)
+- 📫 How to reach me => **JUST CALL FOR ME** (in your mind)
